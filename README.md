@@ -1,2 +1,2 @@
 # ukasa.xyz
-In Luke Smith's words, I'm now an "Internet Landchad"
+In Luke Smith's words, I'm now an "Internet Landchad". Portfolio website is too cliché though...
